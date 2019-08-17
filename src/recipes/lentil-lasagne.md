@@ -8,7 +8,7 @@ title: "Lentil Lasagne"
 ### As in `dish out that las-argh-neigh and stfu mom.`  
 
 ### Ingredients:  
-- 250gees 🤘 red lentils
+- 200gees 🤘 red lentils
 - 1 massive brown onion (or two small, mix it up and throw in 1 red and 1 brown to keep it diverse)
 - Fuck tons of garlic (3 phat cloves, don’t be a little bitch)
 - 1 large carrot (or 2 midgets)
